@@ -1,4 +1,4 @@
-#  
+#  Experience anime vanguards like never before with anime vanguards no-ban Scripts, the #1 Script. Includes infinite resources and unlimited stamina
 
 
 
